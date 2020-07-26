@@ -1,0 +1,1 @@
+![Imagem de um bolo bem gostoso](https://s2.glbimg.com/821maFUXWPJvY8-24UmLH84-UM0=/0x0:617x441/984x0/smart/filters:strip_icc()/s.glbimg.com/po/rc/media/2016/02/18/12_23_46_308_Bolo_de_baunilha_recheado_e_coberto_com_ganache_fatia.jpg)
